@@ -1,5 +1,5 @@
 ### Welcome to D's Pages
-> # InDailyShots
+># InDailyShots
 
 ### We
 ## Are
