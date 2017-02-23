@@ -5,6 +5,7 @@
 ## Are
 # Coming Soon...
 ---
+
 For more information visit  [InDailyShots](www.indailyshots.in)
 
 Like us on Faceboon [InDailyShots](https://www.facebook.com/InDailyShots/)
