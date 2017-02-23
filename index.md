@@ -1,6 +1,6 @@
 ### Welcome to D's Pages
 #### InDailyShots
-*****InDailyShots****
+***InDailyShots
 ___InDailyShots___
 ### We
 ### Are
