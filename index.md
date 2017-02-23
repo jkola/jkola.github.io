@@ -1,6 +1,6 @@
 ### Welcome to D's Pages
-######## InDailyShots
+ InDailyShots
 
-#### We
-##### Are
-###### Coming Soon...
+### We
+### Are
+### Coming Soon...
